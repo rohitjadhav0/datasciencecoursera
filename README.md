@@ -6,7 +6,7 @@
 📧 [rohit.d.jadhav2001@gmail.com](mailto:rohit.d.jadhav2001@gmail.com)
 📞 +91-8180903991
 
-🔗 LinkedIn: (linkedin.com/in/rohit-jadhav-5b4277252/](https://www.linkedin.com/in/rohit-jadhav-5b4277252/)
+🔗 LinkedIn: (https://www.linkedin.com/in/rohit-jadhav-5b4277252/)
 🌐 Portfolio: Add your Portfolio URL
 
 ---
